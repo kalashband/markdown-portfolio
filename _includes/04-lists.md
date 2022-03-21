@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+like to test new food
+to do physicial exercise
+learning new things
